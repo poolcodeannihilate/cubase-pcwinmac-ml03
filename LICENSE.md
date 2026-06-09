@@ -1,4 +1,4 @@
-# 
+# Top Cubase extensões para Mac OS | Inteligente Cubase extensões para PC Windows. Com mixagem de áudio e gravação — otimizado para máximo desempenho em cada plataforma.
 
 
 
